@@ -2,11 +2,11 @@
 
 For your stay near McLoone's Pier House, 1 Ocean Ave N, Long Branch, NJ 07740 from August 21 to 27, 2024, there are several excellent Airbnb options for four people. Here are a few highly rated choices:
 
-1. **Cozy Place with Amazing Yard**: This home in Long Branch has a 4.95 out of 5 rating with 311 reviews. It features a private driveway, street parking, a private yard, a queen bed, a microwave, a refrigerator, and WiFi. Pets are allowed upon request, and there's outdoor furniture including a couch and fire pit【7†source】.
+1. **Cozy Place with Amazing Yard**: This home in Long Branch has a 4.95 out of 5 rating with 311 reviews. It features a private driveway, street parking, a private yard, a queen bed, a microwave, a refrigerator, and WiFi. Pets are allowed upon request, and there's outdoor furniture including a couch and fire pit [AirBnB](https://www.airbnb.com/long-branch-nj/stays).
 
-2. **Two Bedroom Ocean Apartment**: Located just steps from the beach, this apartment is a guest favorite with a 4.87 rating from 235 reviews. It offers easy access to the beach and is fully equipped for a comfortable stay【8†source】.
+2. **Two Bedroom Ocean Apartment**: Located just steps from the beach, this apartment is a guest favorite with a 4.87 rating from 235 reviews. It offers easy access to the beach and is fully equipped for a comfortable stay [AirBnB](https://www.airbnb.com/long-branch-nj/stays/monthly).
 
-3. **Private Waterfront Apartment**: Another great option near ocean beaches with a 4.88 rating from 95 reviews. This apartment provides a private and peaceful retreat while being close to the local attractions【8†source】.
+3. **Private Waterfront Apartment**: Another great option near ocean beaches with a 4.88 rating from 95 reviews. This apartment provides a private and peaceful retreat while being close to the local attractions [AirBnB](https://www.airbnb.com/long-branch-nj/stays/monthly).
 
 4. **Chic Beach Retreat in Asbury Park**: Rated 4.96 from 301 reviews, this designer apartment includes a fully equipped kitchen, an outdoor patio with a grill, and beach passes. It's a bit farther away in Asbury Park but offers a quiet and lushly landscaped setting【7†source】.
 
