@@ -1,5 +1,7 @@
 ![](save_the_date.jpg)
 
+# Aug 21 - 27th, Four Adults
+
 For your stay near McLoone's Pier House, 1 Ocean Ave N, Long Branch, NJ 07740 from August 21 to 27, 2024, there are several excellent Airbnb options for four people. Here are a few highly rated choices:
 
 1. **Cozy Place with Amazing Yard**: This home in Long Branch has a 4.95 out of 5 rating with 311 reviews. It features a private driveway, street parking, a private yard, a queen bed, a microwave, a refrigerator, and WiFi. Pets are allowed upon request, and there's outdoor furniture including a couch and fire pit ([AirBnB](https://www.airbnb.com/long-branch-nj/stays)).
