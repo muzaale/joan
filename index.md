@@ -12,6 +12,11 @@ For your stay near McLoone's Pier House, 1 Ocean Ave N, Long Branch, NJ 07740 fr
 
 4. **Chic Beach Retreat in Asbury Park**: Rated 4.96 from 301 reviews, this designer apartment includes a fully equipped kitchen, an outdoor patio with a grill, and beach passes. It's a bit farther away in Asbury Park but offers a quiet and lushly landscaped setting ([AirBnB](https://www.airbnb.com/long-branch-nj/stays/monthly)).
 
+5. [Entire home in Keansburg, New Jersey](https://www.airbnb.com/rooms/676232187425884051?adults=4&search_mode=regular_search&amenities%5B%5D=4&check_in=2024-08-21&check_out=2024-08-27&source_impression_id=p3_1717156123_P34q7z2dxcRqqWbm&previous_page_section_name=1000&federated_search_id=10802492-bd01-4fbc-a2e8-18eba755a838)
+
+6. [Up to Six guests](https://www.airbnb.com/rooms/932614406172551757?adults=4&search_mode=regular_search&amenities%5B%5D=4&check_in=2024-08-21&check_out=2024-08-27&source_impression_id=p3_1717156321_P3BSP2dH4aygUPRl&previous_page_section_name=1000&federated_search_id=10802492-bd01-4fbc-a2e8-18eba755a838) 
+
+7. [Only Two Beds](https://www.airbnb.com/rooms/638440082551532130?adults=1&category_tag=Tag%3A8678&enable_m3_private_room=true&location=Long%20Branch%2C%20NJ&photo_id=1411955865&search_mode=regular_search&check_in=2024-08-21&check_out=2024-08-27&source_impression_id=p3_1717156475_P3EbG2n70Q6XyO9c&previous_page_section_name=1001&federated_search_id=364cf081-f568-44b0-b381-31e717011abf)
 These options provide a range of amenities to ensure a comfortable and convenient stay near your wedding venue. For booking details and more options, you can visit the [Airbnb Long Branch listings](https://www.airbnb.com/long-branch-nj/stays) ([mapquest](https://www.mapquest.com/us/new-jersey/mcloones-pier-house-346367188#:~:text=URL%3A%20https%3A%2F%2Fwww.mapquest.com%2Fus%2Fnew)).
 
 #
