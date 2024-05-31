@@ -24,6 +24,7 @@ For your stay near McLoone's Pier House, 1 Ocean Ave N, Long Branch, NJ 07740 fr
    - **UberXL (larger vehicle):** Approximately $55 - $70
    - **Uber Black (premium service):** Approximately $90 - $120
 
+9. Another [well priced](https://www.airbnb.com/rooms/47408033?adults=1&location=West%20Long%20Branch%2C%20NJ&search_mode=regular_search&check_in=2024-08-21&check_out=2024-08-27&source_impression_id=p3_1717157119_P3l6eykKLiHOdIUi&previous_page_section_name=1001&federated_search_id=0ef00a6a-99db-4baf-9d78-21c5fdc6c384) option that might be a 30-40min Uber drive
 These are rough estimates and actual prices may differ. For the most accurate and up-to-date fare, it's best to check the Uber app directly.
    
 These options provide a range of amenities to ensure a comfortable and convenient stay near your wedding venue. For booking details and more options, you can visit the [Airbnb Long Branch listings](https://www.airbnb.com/long-branch-nj/stays) ([mapquest](https://www.mapquest.com/us/new-jersey/mcloones-pier-house-346367188#:~:text=URL%3A%20https%3A%2F%2Fwww.mapquest.com%2Fus%2Fnew)).
